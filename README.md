@@ -1,2 +1,0 @@
-# Long6yrs
-Receptive
